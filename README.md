@@ -1,4 +1,4 @@
-# 👋 Assalamu Alaikum, I'm Muhammad Danial Siddiqui
+# 👋 Hi, I'm Muhammad Danial Siddiqui
 
 ### AI Systems Architect | Lead AI Engineer | Agentic AI Specialist
 
